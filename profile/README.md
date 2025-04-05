@@ -1,5 +1,1 @@
-## Hi there 👋
-
-<!--
-You know those indie filmmakers who make those artsy short films before diving into the big budget explosions? That's basically us right now - minus the explosions. We have worked on a few projects together, each building on the last. This is our space to share that journey.
--->
+You know those indie filmmakers who make those artsy short films before diving into the big budget explosions? That's basically us right now - minus the explosions. We have worked on a few projects together, each building on the last. This is our space to share that journey. We're not here to promise you the moon or pretend we're making the world a better place. We want to build cool stuff, one piece at a time, keeping it real. Because that's how you learn, right? RIGHT? Anyway, if you're still reading this (thank you, by the way), maybe drop us a line. Or don't. I'm not your boss.
